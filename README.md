@@ -1,1 +1,1 @@
-# C-t-S-ng-Gen-Z
+# Cột Sống Gen Z
